@@ -63,4 +63,4 @@ Telegram频道传送门：整合各类优质Telegram频道资源，覆盖资讯�
 
 每一次全网爆炸的大瓜，这里都有全流程记录！黑料怎么爆、舆论怎么变，来《黑料大事记》一键复盘，瓜熟蒂落！
 
-[Canonical link](）
+[Canonical link](https://github.com/hle20250624/hle7）
