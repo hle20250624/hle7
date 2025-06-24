@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://hl388.pages.dev/"> 黑料网今日黑料首页</a>
 
-点击访问：<a href="https://hl379.pages.dev/">每日分享最新黑料网</a>
+点击访问：<a href="https://hl379.pages.dev/">每日分享最新黑料网地址</a>
 
 主要内容：
 
